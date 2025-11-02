@@ -5,5 +5,3 @@
 👩‍💻 We love to **build staff**.
 
 🍿 **Innovation** is our drive.
-
-🧙 Sustainable **growth**.
