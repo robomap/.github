@@ -7,6 +7,3 @@
 🍿 **Innovation** is our drive.
 
 🧙 Sustainable **growth**.
-
-
-Let's [collaborate](https://www.linkedin.com/company/robomap/?viewAsMember=true)!!!
